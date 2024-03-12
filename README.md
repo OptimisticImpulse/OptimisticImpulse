@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @OptimisticImpulse
 - 👀 I’m interested in making the world a better place.
-- 🌱 I’m currently learning how to dougie
+- 🌱 I’m currently learning how to dougie!
 - 💞️ I’m looking to collaborate on ways to improve my skills.
 - 📫 How to reach me ... 
 
